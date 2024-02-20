@@ -1,16 +1,14 @@
-### Hi there 👋
+# Contexto Answer Today
 
-<!--
-**contexto-answer-today/contexto-answer-today** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+✅ Are you prepared to unveil today's hidden word? **Click here**  👉  [https://dlgram.com/omiGD](https://dlgram.com/omiGD) 
 
-Here are some ideas to get you started:
+ -----------------------------------------------------------------------------------------------------------
+ 
+Looking for a hand with Contexto? Save this page for future assistance.
+Enter Contexto, a game inspired by Wordle, the viral sensation taking social media by storm. 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Your objective? Uncover today's Contexto solution by proposing related hints. As you submit each word in Contexto, you'll gauge your progress in cracking today's puzzle.
+
+Having trouble cracking today's Contexto challenge? You're in for a treat—this guide unveils today's Contexto answer, saving you from breaking your winning streak due to a tough puzzle.
+
+
